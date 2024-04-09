@@ -13,3 +13,5 @@ rentrys ive made:
 >https://rentry.co/marchthefontain
 
 >https://rentry.co/kujihehe (np kuji! have fun with it!)
+
+>https://rentry.co/sethrentrywow (np seth!!)
