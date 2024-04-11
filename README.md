@@ -15,3 +15,5 @@ rentrys ive made:
 >https://rentry.co/kujihehe (np kuji! have fun with it!)
 
 >https://rentry.co/sethrentrywow (np seth!!)
+
+>https://rentry.co/Rainleaf22 (np rain!)
