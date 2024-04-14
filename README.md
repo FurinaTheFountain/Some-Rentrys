@@ -19,3 +19,5 @@ rentrys ive made:
 >https://rentry.co/Rainleaf22 (np rain!)
 
 >https://rentry.co/Mishdust (np misha!)
+
+>https://rentry.co/jamierentr (np jamie!)
