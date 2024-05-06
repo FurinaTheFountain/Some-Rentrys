@@ -25,7 +25,6 @@ my rentry(s):
 [![](https://64.media.tumblr.com/0018ac2053c69abb00c067f033f75593/03c55896bb928977-5c/s75x75_c1/236f62136e53baf3c80ea77c0b351a2bb6b0e734.gifv)](https://rentry.co/FurinaTheFontaine2)
 [![](https://64.media.tumblr.com/0d5dfeb91ee81c72aa6749349dc8db01/d9a333d859a5147e-7d/s75x75_c1/c8730e6378f0e518b8fddb8d5e6ad9333388b636.gifv)](https://rentry.co/marchthefontain)
 [![](https://64.media.tumblr.com/af084257733df3b120d2cdd681b82335/8f2c33dff79370d2-6c/s75x75_c1/bd52427435efa40f87b336c331218174370378fd.gifv)](https://rentry.co/Kianathefontain)
-[![](https://64.media.tumblr.com/bba4e56370a1b1542d05c5eb508dd52e/b446c5c66747859d-67/s75x75_c1/2aa5cd76eaa5deceb3deedad64856064731fcea5.gifv)](https://rentry.co/marchkin)
 
 matching rentry(s):
 
