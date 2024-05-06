@@ -32,11 +32,12 @@ matching rentry(s):
 
 rentry(s) i made for others:
 
-[![](https://64.media.tumblr.com/60d0195f0814c3a1d1816a9979404c20/04dfb8c512e3f807-27/s75x75_c1/aecd8d1ef41507106b2cb69b5f7a479d8f6c4029.gifv)](https://rentry.co/kujihehe) ⁿᵖ ᵏᵘʲⁱ
+[![](https://64.media.tumblr.com/60d0195f0814c3a1d1816a9979404c20/04dfb8c512e3f807-27/s75x75_c1/aecd8d1ef41507106b2cb69b5f7a479d8f6c4029.gifv)](https://rentry.co/kujihehe)
 [![](https://64.media.tumblr.com/845e1b3fec1b08d6470842f26e0794ab/4ebe151b092f0f90-03/s75x75_c1/49b7be3d8b52b6cf84a8f65d4df5a50305505492.gifv)](https://rentry.co/zipkujihehe)ⁿᵖ ᵏᵘʲⁱ
 [![](https://64.media.tumblr.com/c4b6e200bba83c8499694357c5fdd768/30b158152b64b0f7-ea/s75x75_c1/8d55cc4379109493bc5984b41e3416ba6df7adc1.gifv)](https://rentry.co/sethrentrywow) ⁿᵖ ˢᵉᵗʰ
 [![](https://64.media.tumblr.com/898dd259b5bfe749b37fb2961204a5b6/346ba69c2feb4339-7b/s75x75_c1/9df7d1d616070c446fbca32a1f4b41e6308b5307.gifv)](https://rentry.co/Rainleaf22) ⁿᵖ ʳᵃⁱⁿ
-[![](https://64.media.tumblr.com/974e67db6d4b8fb2bd7dc5c884e7ff76/3c2c210dbc46ea24-72/s75x75_c1/999ac53bd3908424368046bc21e6b081a7cdb92d.gifv)](https://rentry.co/Mishdust) ⁿᵖ ᵐⁱˢʰᵃ
+[![](https://64.media.tumblr.com/974e67db6d4b8fb2bd7dc5c884e7ff76/3c2c210dbc46ea24-72/s75x75_c1/999ac53bd3908424368046bc21e6b081a7cdb92d.gifv)](https://rentry.co/Mishdust)
+[![](https://64.media.tumblr.com/745ce0a0a7feb2d9868cba7f4e2d2b05/5b6f75a9fd65b017-d9/s75x75_c1/45a0f3dd435bea9e340c9f732265c2c944eeaea0.gifv)](https://rentry.co/Mishtherian)ⁿᵖ ᵐⁱˢʰᵃ
 [![](https://64.media.tumblr.com/3443d282e1bbf2115021445057754968/7ff15572939cc448-d0/s75x75_c1/5f142c02375aea7ddc2bc87ed18f1c645c26fad1.gifv)](https://rentry.co/jamierentr) ⁿᵖ ʲᵃᵐⁱᵉ
 [![](https://64.media.tumblr.com/7b23c4e312dfe56a7038549555ad9c5d/09b0656ab042c182-e2/s75x75_c1/e7c47126bce8737d2754af6066ccc4409489de9e.gifv)](https://rentry.co/ZoyaALICE) ⁿᵖ ᶻᵒʸᵃ
 
