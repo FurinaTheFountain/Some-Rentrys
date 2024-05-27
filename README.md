@@ -22,7 +22,7 @@
 my rentry(s):
 
 [![](https://64.media.tumblr.com/02a89f8f33d116682a7e0ee53e78a4b2/7b43ae899b7504d8-64/s75x75_c1/52d1a469a4aa4578039324276b2e790d2f5cc91d.gifv)](https://rentry.co/FurinaTheFontaine)
-[![](https://64.media.tumblr.com/0018ac2053c69abb00c067f033f75593/03c55896bb928977-5c/s75x75_c1/236f62136e53baf3c80ea77c0b351a2bb6b0e734.gifv)](https://rentry.co/FurinaTheFontaine2)
+[![](https://64.media.tumblr.com/c38209de613a00ae5770d013e6735edc/f550c28c5f78d19a-e7/s75x75_c1/5e739c5388a347b29a63243949a33954176908bf.gifv)](https://rentry.co/aventthefountain)
 [![](https://64.media.tumblr.com/0d5dfeb91ee81c72aa6749349dc8db01/d9a333d859a5147e-7d/s75x75_c1/c8730e6378f0e518b8fddb8d5e6ad9333388b636.gifv)](https://rentry.co/marchthefontain)
 [![](https://64.media.tumblr.com/af084257733df3b120d2cdd681b82335/8f2c33dff79370d2-6c/s75x75_c1/bd52427435efa40f87b336c331218174370378fd.gifv)](https://rentry.co/Kianathefontain)
 
