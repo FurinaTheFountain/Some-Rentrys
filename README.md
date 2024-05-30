@@ -1,36 +1,29 @@
 ---
 
 <p align="center">
-  <img src="https://64.media.tumblr.com/d494836e96091d84484e0240a999dfda/f11118d35e3e014b-0f/s540x810/67ac5589e1d45f9e7331a7b1f791d5d0437e6d69.pnj" alt="Sublime's custom image"/>
+  <img src="https://64.media.tumblr.com/2beed716bd02bd9a2be96b577e773e70/6c4e914f0ab02e3a-c2/s640x960/8a02e9e7c9897d35d6ff2fe4067c04ab0e1152f1.pnj" alt="Sublime's custom image"/>
 </p>
 
 
-<div align="center">if ya ever wanted to friend me!
-
-
-
-<div align="center">HSR uid: 802326124
-
-  GI uid: 819054127
   
 <p align="center">
-  <img src="https://camo.githubusercontent.com/93724ce583cdc610ca9d4db16ae7a83c251704f095c3bf385b897303dcc17331/68747470733a2f2f36342e6d656469612e74756d626c722e636f6d2f62323666666330336232316137386439333832323431616532333830646236652f323166643166353936373965353264642d30352f73343030783630302f663063393339323733643666376130613931323639326564346630626262366536373533393830362e706e6a" alt="Sublime's custom image"/>
+  <img src="https://64.media.tumblr.com/c6b8f0a7ba57aeb8bd5bd0f6f5e981e1/6c4e914f0ab02e3a-52/s400x600/a9c53f498015505927bffa01f7185eff3b69c6cd.pnj" alt="Sublime's custom image"/>
 </p>
 
-<div align="center">rentrys ive made:
+<div align="center">𝘳𝘦𝘯𝘵𝘳𝘺𝘴 𝘪𝘷𝘦 𝘮𝘢𝘥𝘦:
 
-my rentry(s):
+𝘮𝘺 𝘳𝘦𝘯𝘵𝘳𝘺(𝘴):
 
 [![](https://64.media.tumblr.com/02a89f8f33d116682a7e0ee53e78a4b2/7b43ae899b7504d8-64/s75x75_c1/52d1a469a4aa4578039324276b2e790d2f5cc91d.gifv)](https://rentry.co/FurinaTheFontaine)
 [![](https://64.media.tumblr.com/c38209de613a00ae5770d013e6735edc/f550c28c5f78d19a-e7/s75x75_c1/5e739c5388a347b29a63243949a33954176908bf.gifv)](https://rentry.co/aventthefountain)
 [![](https://64.media.tumblr.com/0d5dfeb91ee81c72aa6749349dc8db01/d9a333d859a5147e-7d/s75x75_c1/c8730e6378f0e518b8fddb8d5e6ad9333388b636.gifv)](https://rentry.co/marchthefontain)
 [![](https://64.media.tumblr.com/af084257733df3b120d2cdd681b82335/8f2c33dff79370d2-6c/s75x75_c1/bd52427435efa40f87b336c331218174370378fd.gifv)](https://rentry.co/Kianathefontain)
 
-matching rentry(s):
+𝘮𝘢𝘵𝘤𝘩𝘪𝘯𝘨 𝘳𝘦𝘯𝘵𝘳𝘺(𝘴):
 
 [![](https://64.media.tumblr.com/3ca64d5a6ded6c3268ae6d45b4f54845/2fd1781c280245c1-06/s75x75_c1/cc06f5f23b37d1468a29a77083271c5cceb46f0e.gifv)](https://rentry.co/Divination_Commission)
 
-rentry(s) i made for others:
+𝘳𝘦𝘯𝘵𝘳𝘺(𝘴) 𝘪 𝘮𝘢𝘥𝘦 𝘧𝘰𝘳 𝘰𝘵𝘩𝘦𝘳𝘴:
 
 [![](https://64.media.tumblr.com/60d0195f0814c3a1d1816a9979404c20/04dfb8c512e3f807-27/s75x75_c1/aecd8d1ef41507106b2cb69b5f7a479d8f6c4029.gifv)](https://rentry.co/kujihehe)
 [![](https://64.media.tumblr.com/845e1b3fec1b08d6470842f26e0794ab/4ebe151b092f0f90-03/s75x75_c1/49b7be3d8b52b6cf84a8f65d4df5a50305505492.gifv)](https://rentry.co/zipkujihehe)ⁿᵖ ᵏᵘʲⁱ
@@ -43,7 +36,7 @@ rentry(s) i made for others:
 
  ʰᵃᵛᵉ ᶠᵘⁿ ʷⁱᵗʰ ⁱᵗ ʸᵃˡˡ!
  
-Click the pixels to see the rentrys
+𝘊𝘭𝘪𝘤𝘬 𝘵𝘩𝘦 𝘱𝘪𝘹𝘦𝘭𝘴 𝘵𝘰 𝘴𝘦𝘦 𝘵𝘩𝘦 𝘳𝘦𝘯𝘵𝘳𝘺𝘴
 <p align="center">
-  <img src="https://64.media.tumblr.com/7a8de1b39dcbc0221fe7cf8d238af19a/9e8393547ae11914-11/s100x200/53bec76d4799bc81b5fe94014ecbec767446aba6.pnj" alt="Sublime's custom image"/>
+  <img src="https://64.media.tumblr.com/c6eb80af3536b995611765d0212fd2a4/8bdb1cd3529624d0-b9/s100x200/3f2d46cec573260c9ce75a8c45c04095ace89462.pnj" alt="Sublime's custom image"/>
 </p>
