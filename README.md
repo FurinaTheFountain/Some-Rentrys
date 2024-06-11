@@ -24,6 +24,10 @@
 
 [![](https://64.media.tumblr.com/3ca64d5a6ded6c3268ae6d45b4f54845/2fd1781c280245c1-06/s75x75_c1/cc06f5f23b37d1468a29a77083271c5cceb46f0e.gifv)](https://rentry.co/Divination_Commission)
 
+[![](https://64.media.tumblr.com/1c7b7ce14c30591acd981d285bfe4e65/b446c5c66747859d-f0/s75x75_c1/54c4d33c4b9a3fb558428cde8a71bdc235bba98b.gifv)](https://rentry.co/FurinaTheFontaine)
+[![](https://64.media.tumblr.com/5bcb1f61012ff790bf7b15ba3f21a706/7709ffd679871115-6c/s75x75_c1/c94630b5049a5cb8bf823a56f43a1d326ee499c2.gifv)](https://rentry.co/danhengkuji)
+[![](https://64.media.tumblr.com/eae7463a0e483b009f9bff59e5de9a8c/8851735f23cf5f73-1e/s75x75_c1/f98c602f5b548ccc88a4a8557bb23101095a95ed.gifv)](https://rentry.co/stellezoya)
+
 𝘳𝘦𝘯𝘵𝘳𝘺(𝘴) 𝘪 𝘮𝘢𝘥𝘦 𝘧𝘰𝘳 𝘰𝘵𝘩𝘦𝘳𝘴:
 
 [![](https://64.media.tumblr.com/60d0195f0814c3a1d1816a9979404c20/04dfb8c512e3f807-27/s75x75_c1/aecd8d1ef41507106b2cb69b5f7a479d8f6c4029.gifv)](https://rentry.co/kujihehe)
