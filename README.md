@@ -1,5 +1,3 @@
----
-
 <p align="center">
   <img src="https://64.media.tumblr.com/2beed716bd02bd9a2be96b577e773e70/6c4e914f0ab02e3a-c2/s640x960/8a02e9e7c9897d35d6ff2fe4067c04ab0e1152f1.pnj" alt="Sublime's custom image"/>
 </p>
@@ -44,6 +42,7 @@
 
  ʰᵃᵛᵉ ᶠᵘⁿ ʷⁱᵗʰ ⁱᵗ ʸᵃˡˡ!
  
+--- 
 𝘊𝘭𝘪𝘤𝘬 𝘵𝘩𝘦 𝘱𝘪𝘹𝘦𝘭𝘴 𝘵𝘰 𝘴𝘦𝘦 𝘵𝘩𝘦 𝘳𝘦𝘯𝘵𝘳𝘺𝘴
 <p align="center">
   <img src="https://64.media.tumblr.com/c6eb80af3536b995611765d0212fd2a4/8bdb1cd3529624d0-b9/s100x200/3f2d46cec573260c9ce75a8c45c04095ace89462.pnj" alt="Sublime's custom image"/>
