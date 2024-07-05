@@ -1,14 +1,18 @@
+<div align="center">
+
 <p align="center">
-  <img src="https://64.media.tumblr.com/2beed716bd02bd9a2be96b577e773e70/6c4e914f0ab02e3a-c2/s640x960/8a02e9e7c9897d35d6ff2fe4067c04ab0e1152f1.pnj" alt="Sublime's custom image"/>
+  <img src="https://64.media.tumblr.com/a9e99d970eb81c563b7d155cc497020e/10caac22899f8aae-7d/s640x960/9d296a0fff3211dadf333394770ab09c89b66e2d.pnj"/>
 </p>
 
 
   
 <p align="center">
-  <img src="https://64.media.tumblr.com/c6b8f0a7ba57aeb8bd5bd0f6f5e981e1/6c4e914f0ab02e3a-52/s400x600/a9c53f498015505927bffa01f7185eff3b69c6cd.pnj" alt="Sublime's custom image"/>
+  <img src="https://64.media.tumblr.com/11422825d4a6293f81fea69ad42cd45e/29d99bdeaf2c4c42-86/s400x600/b6d6d5894fec90a3345e5d02257649b34eb40146.gifv" alt="Sublime's custom image"/>
 </p>
 
-<div align="center">𝘳𝘦𝘯𝘵𝘳𝘺𝘴 𝘪𝘷𝘦 𝘮𝘢𝘥𝘦:
+ᶜˡⁱᶜᵏ ᵗʰᵉ ᵖⁱˣᵉˡˢ ᵗᵒ ˢᵉᵉ ᵗʰᵉ ʳᵉⁿᵗʳʸ⁽ˢ⁾
+
+𝘳𝘦𝘯𝘵𝘳𝘺𝘴 𝘪𝘷𝘦 𝘮𝘢𝘥𝘦:
 
 𝘮𝘺 𝘳𝘦𝘯𝘵𝘳𝘺(𝘴):
 
@@ -18,8 +22,10 @@
 [![](https://64.media.tumblr.com/af084257733df3b120d2cdd681b82335/8f2c33dff79370d2-6c/s75x75_c1/bd52427435efa40f87b336c331218174370378fd.gifv)](https://rentry.co/Kianathefontain)
 [![](https://64.media.tumblr.com/6a3d7f82ae80c5d83fa8222053491162/a6414b1ef8b29068-b3/s75x75_c1/f042253e137a04fd60d837e5a87f6ab914aaf446.gifv)](https://rentry.co/SeeleTheFountain)
 [![](https://64.media.tumblr.com/93fcc5f9ce834961539fb2b801c60208/346ba69c2feb4339-fe/s75x75_c1/4c60504b5638045efab55140f52d84f95ba7bbef.gifv)](https://rentry.co/DanHengTheFountain)
-[![](https://64.media.tumblr.com/a03dd1ec6198a37555607d79ea827340/73ba3e95d9991f31-e0/s75x75_c1/c536f78cc86b1ba17c6c22117f8b0e98fbb8d764.gifv)](https://rentry.co/HalovianSingerose)
 [![](https://64.media.tumblr.com/b2d94e36e5c2a8605854cb22855b5228/7709ffd679871115-3d/s75x75_c1/33f20d4c189778acf40f98c14c25449fed887660.gifv)](https://rentry.co/HoyoWheniCatchYouHoyo)
+
+
+![](https://64.media.tumblr.com/b8118e55a304ffc244ab7babb86d665e/29d99bdeaf2c4c42-87/s100x200/07d5e49f60da08b8dc79348090d6746ec62399e3.pnj)
 
 
 𝘮𝘢𝘵𝘤𝘩𝘪𝘯𝘨 𝘳𝘦𝘯𝘵𝘳𝘺(𝘴):
@@ -29,6 +35,11 @@
 [![](https://64.media.tumblr.com/1c7b7ce14c30591acd981d285bfe4e65/b446c5c66747859d-f0/s75x75_c1/54c4d33c4b9a3fb558428cde8a71bdc235bba98b.gifv)](https://rentry.co/Marchrose)
 [![](https://64.media.tumblr.com/5bcb1f61012ff790bf7b15ba3f21a706/7709ffd679871115-6c/s75x75_c1/c94630b5049a5cb8bf823a56f43a1d326ee499c2.gifv)](https://rentry.co/danhengkuji)
 [![](https://64.media.tumblr.com/eae7463a0e483b009f9bff59e5de9a8c/8851735f23cf5f73-1e/s75x75_c1/f98c602f5b548ccc88a4a8557bb23101095a95ed.gifv)](https://rentry.co/stellezoya)
+
+
+![](https://64.media.tumblr.com/2439709568e6ce11b33ad151d4682ee2/54d0cbdee85662dd-d5/s250x400/f1fc7a3893368199979875874b13d435d57b932b.pnj)
+
+
 
 𝘳𝘦𝘯𝘵𝘳𝘺(𝘴) 𝘪 𝘮𝘢𝘥𝘦 𝘧𝘰𝘳 𝘰𝘵𝘩𝘦𝘳𝘴:
 
@@ -43,11 +54,13 @@
 [![](https://64.media.tumblr.com/3443d282e1bbf2115021445057754968/7ff15572939cc448-d0/s75x75_c1/5f142c02375aea7ddc2bc87ed18f1c645c26fad1.gifv)](https://rentry.co/jamierentr) ⁿᵖ ʲᵃᵐⁱᵉ
 [![](https://64.media.tumblr.com/5c22f669fa5b54deba6738b30e318604/677352c2cfecb1b5-f2/s75x75_c1/6efd6f80160dc0da5ad871a208c9d5df8ca57d60.gifv)](https://rentry.co/Alicefpeofficial)
 [![](https://64.media.tumblr.com/7b23c4e312dfe56a7038549555ad9c5d/09b0656ab042c182-e2/s75x75_c1/e7c47126bce8737d2754af6066ccc4409489de9e.gifv)](https://rentry.co/ZoyaALICE) ⁿᵖ ᶻᵒʸᵃ
+[![](https://64.media.tumblr.com/a03dd1ec6198a37555607d79ea827340/73ba3e95d9991f31-e0/s75x75_c1/c536f78cc86b1ba17c6c22117f8b0e98fbb8d764.gifv)](https://rentry.co/HalovianSingerose) ⁿᵖ ʳᵒᵇⁱⁿ
 
- ʰᵃᵛᵉ ᶠᵘⁿ ʷⁱᵗʰ ⁱᵗ ʸᵃˡˡ!
- 
+ʰᵃᵛᵉ ᶠᵘⁿ ʷⁱᵗʰ ⁱᵗ ʸᵃˡˡ!
+
+![](https://64.media.tumblr.com/e560b4c83fc0174b8f1358408fae397a/29d99bdeaf2c4c42-f4/s100x200/c234d90cda79aa7457211a77c4e637ae553fc39c.pnj)
+
 --- 
-𝘊𝘭𝘪𝘤𝘬 𝘵𝘩𝘦 𝘱𝘪𝘹𝘦𝘭𝘴 𝘵𝘰 𝘴𝘦𝘦 𝘵𝘩𝘦 𝘳𝘦𝘯𝘵𝘳𝘺𝘴
-<p align="center">
-  <img src="https://64.media.tumblr.com/c6eb80af3536b995611765d0212fd2a4/8bdb1cd3529624d0-b9/s100x200/3f2d46cec573260c9ce75a8c45c04095ace89462.pnj" alt="Sublime's custom image"/>
-</p>
+ᵍʳᵃᵖʰⁱᶜ ᵇʸ [ˢʰᵘᵗᵘᵖˢᵃᵐᵖᵒ](https://www.tumblr.com/shutupsampo/754644893273653248/imbibitor-lunae-graphic-bonus-gay-pride?source=share)
+
+ᵉᵛᵉʳʸᵗʰⁱⁿᵍ ᵉˡˢᵉ ᵒⁿ [ᵗᵘᵐᵇˡʳ](https://www.tumblr.com)
