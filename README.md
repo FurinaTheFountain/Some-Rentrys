@@ -56,7 +56,8 @@
 [![](https://64.media.tumblr.com/03fcf88fea74d5509e3db2ecd77edaa1/d6cfdba148c366a9-ef/s75x75_c1/de6993a9e40c1180f27b10836c0dbefb024f48cd.gifv)](https://rentry.co/Rainntry) ⁿᵖ ʳᵃⁱⁿ
 
 [![](https://64.media.tumblr.com/974e67db6d4b8fb2bd7dc5c884e7ff76/3c2c210dbc46ea24-72/s75x75_c1/999ac53bd3908424368046bc21e6b081a7cdb92d.gifv)](https://rentry.co/Mishdust)
-[![](https://64.media.tumblr.com/745ce0a0a7feb2d9868cba7f4e2d2b05/5b6f75a9fd65b017-d9/s75x75_c1/45a0f3dd435bea9e340c9f732265c2c944eeaea0.gifv)](https://rentry.co/ThatOneTherian)ⁿᵖ ᵐⁱˢʰᵃ
+[![](https://64.media.tumblr.com/745ce0a0a7feb2d9868cba7f4e2d2b05/5b6f75a9fd65b017-d9/s75x75_c1/45a0f3dd435bea9e340c9f732265c2c944eeaea0.gifv)](https://rentry.co/ThatOneTherian)
+[![](https://64.media.tumblr.com/445ada9c7b0c563bb49171c4b10b728d/f906645b1342aa28-6d/s75x75_c1/a2498ad45ab7140a83b5dead6a984a2bc126314e.gifv)](https://rentry.co/nikomish)ⁿᵖ ᵐⁱˢʰᵃ
 
 [![](https://64.media.tumblr.com/3443d282e1bbf2115021445057754968/7ff15572939cc448-d0/s75x75_c1/5f142c02375aea7ddc2bc87ed18f1c645c26fad1.gifv)](https://rentry.co/jamierentr) ⁿᵖ ʲᵃᵐⁱᵉ
 
