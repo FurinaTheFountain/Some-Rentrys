@@ -1,4 +1,4 @@
-<div align="center">
+![image](https://github.com/user-attachments/assets/8b778b5e-378f-4f5c-b223-61479773cd91)<div align="center">
 
 <p align="center">
   <img src="https://64.media.tumblr.com/a9e99d970eb81c563b7d155cc497020e/10caac22899f8aae-7d/s640x960/9d296a0fff3211dadf333394770ab09c89b66e2d.pnj"/>
@@ -57,9 +57,10 @@
 
 [![](https://64.media.tumblr.com/974e67db6d4b8fb2bd7dc5c884e7ff76/3c2c210dbc46ea24-72/s75x75_c1/999ac53bd3908424368046bc21e6b081a7cdb92d.gifv)](https://rentry.co/Mishdust)
 [![](https://64.media.tumblr.com/745ce0a0a7feb2d9868cba7f4e2d2b05/5b6f75a9fd65b017-d9/s75x75_c1/45a0f3dd435bea9e340c9f732265c2c944eeaea0.gifv)](https://rentry.co/ThatOneTherian)
-[![](https://64.media.tumblr.com/445ada9c7b0c563bb49171c4b10b728d/f906645b1342aa28-6d/s75x75_c1/a2498ad45ab7140a83b5dead6a984a2bc126314e.gifv)](https://rentry.co/nikomish)ⁿᵖ ᵐⁱˢʰᵃ
+[![](https://64.media.tumblr.com/445ada9c7b0c563bb49171c4b10b728d/f906645b1342aa28-6d/s75x75_c1/a2498ad45ab7140a83b5dead6a984a2bc126314e.gifv)](https://rentry.co/nikomish) ⁿᵖ ᵐⁱˢʰᵃ
 
-[![](https://64.media.tumblr.com/3443d282e1bbf2115021445057754968/7ff15572939cc448-d0/s75x75_c1/5f142c02375aea7ddc2bc87ed18f1c645c26fad1.gifv)](https://rentry.co/jamierentr) ⁿᵖ ʲᵃᵐⁱᵉ
+[![](https://64.media.tumblr.com/3443d282e1bbf2115021445057754968/7ff15572939cc448-d0/s75x75_c1/5f142c02375aea7ddc2bc87ed18f1c645c26fad1.gifv)](https://rentry.co/jamierentr)
+[![](https://64.media.tumblr.com/0b9ce766670a2c78821b43caf5d81220/da5d8d7ce785812c-70/s75x75_c1/abd58033b27f67d0438d1c50e3538e566b5617b1.gifv)](https://rentry.co/loonJamie) ⁿᵖ ʲᵃᵐⁱᵉ
 
 [![](https://64.media.tumblr.com/5c22f669fa5b54deba6738b30e318604/677352c2cfecb1b5-f2/s75x75_c1/6efd6f80160dc0da5ad871a208c9d5df8ca57d60.gifv)](https://rentry.co/Alicefpeofficial)
 [![](https://64.media.tumblr.com/7b23c4e312dfe56a7038549555ad9c5d/09b0656ab042c182-e2/s75x75_c1/e7c47126bce8737d2754af6066ccc4409489de9e.gifv)](https://rentry.co/ZoyaALICE) ⁿᵖ ᶻᵒʸᵃ
