@@ -51,7 +51,8 @@
 [![](https://64.media.tumblr.com/db8493e5fc43a1a2fe9ce458dbae8aa1/c13498b094a7c521-33/s75x75_c1/111e62b36a94c88f0bd99ef0c0f2512da2142289.gifv)](https://rentry.co/Intro_kxka)
 [![](https://64.media.tumblr.com/4bdd64c156072dda33c5d6627af85106/1e23f319f5c75d24-0e/s75x75_c1/4cb90f3c91a5cfeb9f8e53268af6aad0b0a6c01c.pnj)](https://rentry.co/KUJISTOAST) ⁿᵖ ᵏᵘʲⁱ
 
-[![](https://64.media.tumblr.com/c4b6e200bba83c8499694357c5fdd768/30b158152b64b0f7-ea/s75x75_c1/8d55cc4379109493bc5984b41e3416ba6df7adc1.gifv)](https://rentry.co/sethrentrywow) ⁿᵖ ˢᵉᵗʰ
+[![](https://64.media.tumblr.com/c4b6e200bba83c8499694357c5fdd768/30b158152b64b0f7-ea/s75x75_c1/8d55cc4379109493bc5984b41e3416ba6df7adc1.gifv)](https://rentry.co/sethrentrywow)
+[![](https://64.media.tumblr.com/cb8df6dad8d87487c0099b8662dff515/b35afcc33bb88749-c4/s75x75_c1/6d3eabbf7675eb8ddae14c4e19c37fd1ca5592a9.gifv)](https://rentry.co/Goldntears)  ⁿᵖ ˢᵉᵗʰ
 
 [![](https://64.media.tumblr.com/898dd259b5bfe749b37fb2961204a5b6/346ba69c2feb4339-7b/s75x75_c1/9df7d1d616070c446fbca32a1f4b41e6308b5307.gifv)](https://rentry.co/Rainleaf22) 
 [![](https://64.media.tumblr.com/03fcf88fea74d5509e3db2ecd77edaa1/d6cfdba148c366a9-ef/s75x75_c1/de6993a9e40c1180f27b10836c0dbefb024f48cd.gifv)](https://rentry.co/Rainntry) ⁿᵖ ʳᵃⁱⁿ
