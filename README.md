@@ -74,7 +74,8 @@
 
 [![](https://64.media.tumblr.com/a03dd1ec6198a37555607d79ea827340/73ba3e95d9991f31-e0/s75x75_c1/c536f78cc86b1ba17c6c22117f8b0e98fbb8d764.gifv)](https://rentry.co/HalovianSingerose) ⁿᵖ ʳᵒᵇⁱⁿ
 
-[![](https://64.media.tumblr.com/8b49d076724046846414a2b28576abf0/8851735f23cf5f73-c9/s75x75_c1/316ec6ee9e487efe7aca312dd7d8ad747aecd2b1.gifv)](https://rentry.co/Luminescentes) ⁿᵖ ᵏⁱᵃⁿᵃ
+[![](https://64.media.tumblr.com/8b49d076724046846414a2b28576abf0/8851735f23cf5f73-c9/s75x75_c1/316ec6ee9e487efe7aca312dd7d8ad747aecd2b1.gifv)](https://rentry.co/Luminescentes)
+[![](https://64.media.tumblr.com/699ec678b08e3f777f6016f1d44f7328/30b158152b64b0f7-8f/s75x75_c1/d76af24204c73c61b3ca637359a18938e120088e.gifv)](https://rentry.co/luminousky)ⁿᵖ ᵏⁱᵃⁿᵃ
 
 ʰᵃᵛᵉ ᶠᵘⁿ ʷⁱᵗʰ ⁱᵗ ʸᵃˡˡ!
 
