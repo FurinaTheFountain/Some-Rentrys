@@ -1,14 +1,7 @@
 <div align="center">
 
-<p align="center">
-  <img src="https://64.media.tumblr.com/a9e99d970eb81c563b7d155cc497020e/10caac22899f8aae-7d/s640x960/9d296a0fff3211dadf333394770ab09c89b66e2d.pnj"/>
-</p>
+![](https://64.media.tumblr.com/5c4bd741b972bfde01db68b74d36ba5b/8b5e717c4b380cb5-6d/s400x600/cd228a7e8b4c8d25f0d4de8ad0d0c2e5c1cdaeab.pnj)
 
-
-  
-<p align="center">
-  <img src="https://64.media.tumblr.com/11422825d4a6293f81fea69ad42cd45e/29d99bdeaf2c4c42-86/s400x600/b6d6d5894fec90a3345e5d02257649b34eb40146.gifv" alt="Sublime's custom image"/>
-</p>
 
 ᶜˡⁱᶜᵏ ᵗʰᵉ ᵖⁱˣᵉˡˢ ᵗᵒ ˢᵉᵉ ᵗʰᵉ ʳᵉⁿᵗʳʸ⁽ˢ⁾
 
@@ -28,9 +21,9 @@
 [![](https://64.media.tumblr.com/ffdbf7bc7e598996d9298cd38d7b83ea/129921e9bfa8c2a3-fe/s75x75_c1/dbbcd156e108f04552c517eda3098ed494d94b6f.gifv)](https://rentry.co/rosetry)
 [![](https://64.media.tumblr.com/d63bb00ec51c7def76ffabec5de9d38d/2e5cb582a4a27d66-2f/s75x75_c1/0fc99ce9588bb305d49b72185480255a980c673d.gifv)](https://rentry.co/roseubs)
 [![](https://64.media.tumblr.com/b53e05b929fb7c9dd7e9b0d5e6c9d6be/72bce77454e127ed-05/s75x75_c1/eb00cc875ad37dd10a606cb28ae0e245c2bdd5b1.gifv)](https://rentry.co/dhilmarch)
+[![](https://64.media.tumblr.com/3daf49bac1df77e98ccd86bd91029faa/d072aa7bfa55c889-1c/s75x75_c1/323c81510234358eceee793f6607830275c9e7e9.gifv)](https://rentry.co/promisedfuture)
 
-
-![](https://64.media.tumblr.com/b8118e55a304ffc244ab7babb86d665e/29d99bdeaf2c4c42-87/s100x200/07d5e49f60da08b8dc79348090d6746ec62399e3.pnj)
+![](https://64.media.tumblr.com/9cf948dd0d62415f34ab59f718cf1916/8b5e717c4b380cb5-4a/s250x400/4d2f593dd5fca9b4260e2410ff0b4415f72724f1.pnj)
 
 
 𝘮𝘢𝘵𝘤𝘩𝘪𝘯𝘨 𝘳𝘦𝘯𝘵𝘳𝘺(𝘴):
@@ -44,7 +37,7 @@
 [![](https://64.media.tumblr.com/eae7463a0e483b009f9bff59e5de9a8c/8851735f23cf5f73-1e/s75x75_c1/f98c602f5b548ccc88a4a8557bb23101095a95ed.gifv)](https://rentry.co/stellezoya)
 
 
-![](https://64.media.tumblr.com/2439709568e6ce11b33ad151d4682ee2/54d0cbdee85662dd-d5/s250x400/f1fc7a3893368199979875874b13d435d57b932b.pnj)
+![](https://64.media.tumblr.com/9cf948dd0d62415f34ab59f718cf1916/8b5e717c4b380cb5-4a/s250x400/4d2f593dd5fca9b4260e2410ff0b4415f72724f1.pnj)
 
 
 
@@ -79,9 +72,9 @@
 
 ʰᵃᵛᵉ ᶠᵘⁿ ʷⁱᵗʰ ⁱᵗ ʸᵃˡˡ!
 
-![](https://64.media.tumblr.com/e560b4c83fc0174b8f1358408fae397a/29d99bdeaf2c4c42-f4/s100x200/c234d90cda79aa7457211a77c4e637ae553fc39c.pnj)
+![](https://64.media.tumblr.com/9cf948dd0d62415f34ab59f718cf1916/8b5e717c4b380cb5-4a/s250x400/4d2f593dd5fca9b4260e2410ff0b4415f72724f1.pnj)
 
 --- 
-ᵍʳᵃᵖʰⁱᶜ ᵇʸ [ˢʰᵘᵗᵘᵖˢᵃᵐᵖᵒ](https://www.tumblr.com/shutupsampo/754644893273653248/imbibitor-lunae-graphic-bonus-gay-pride?source=share)
+ᵍʳᵃᵖʰⁱᶜ [ᶜʳᵉᵈ](https://www.tumblr.com/hrlyqueen)
 
 ᵉᵛᵉʳʸᵗʰⁱⁿᵍ ᵉˡˢᵉ ᵒⁿ [ᵗᵘᵐᵇˡʳ](https://www.tumblr.com)
