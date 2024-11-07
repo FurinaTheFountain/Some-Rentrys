@@ -52,7 +52,8 @@
 [![](https://64.media.tumblr.com/60d0195f0814c3a1d1816a9979404c20/04dfb8c512e3f807-27/s75x75_c1/aecd8d1ef41507106b2cb69b5f7a479d8f6c4029.gifv)](https://rentry.co/kujihehe)
 [![](https://64.media.tumblr.com/845e1b3fec1b08d6470842f26e0794ab/4ebe151b092f0f90-03/s75x75_c1/49b7be3d8b52b6cf84a8f65d4df5a50305505492.gifv)](https://rentry.co/Th3Kxka)
 [![](https://64.media.tumblr.com/db8493e5fc43a1a2fe9ce458dbae8aa1/c13498b094a7c521-33/s75x75_c1/111e62b36a94c88f0bd99ef0c0f2512da2142289.gifv)](https://rentry.co/Intro_kxka)
-[![](https://64.media.tumblr.com/4bdd64c156072dda33c5d6627af85106/1e23f319f5c75d24-0e/s75x75_c1/4cb90f3c91a5cfeb9f8e53268af6aad0b0a6c01c.pnj)](https://rentry.co/KUJISTOAST) ⁿᵖ ᵏᵘʲⁱ
+[![](https://64.media.tumblr.com/4bdd64c156072dda33c5d6627af85106/1e23f319f5c75d24-0e/s75x75_c1/4cb90f3c91a5cfeb9f8e53268af6aad0b0a6c01c.pnj)](https://rentry.co/KUJISTOAST)
+[![](https://64.media.tumblr.com/8615a420a0120422b75d6bed084aa350/a2c9f35280bc6455-ef/s75x75_c1/fae57df679abb856951801c9997bb1b0c8f7c594.gifv)](https://rentry.co/crims0nbl00d)  ⁿᵖ ᵏᵘʲⁱ
 
 [![](https://64.media.tumblr.com/c4b6e200bba83c8499694357c5fdd768/30b158152b64b0f7-ea/s75x75_c1/8d55cc4379109493bc5984b41e3416ba6df7adc1.gifv)](https://rentry.co/sethrentrywow)
 [![](https://64.media.tumblr.com/cb8df6dad8d87487c0099b8662dff515/b35afcc33bb88749-c4/s75x75_c1/6d3eabbf7675eb8ddae14c4e19c37fd1ca5592a9.gifv)](https://rentry.co/Goldntears)  ⁿᵖ ˢᵉᵗʰ
