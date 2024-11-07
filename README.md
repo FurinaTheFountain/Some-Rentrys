@@ -40,6 +40,9 @@
 [![](https://64.media.tumblr.com/eae7463a0e483b009f9bff59e5de9a8c/8851735f23cf5f73-1e/s75x75_c1/f98c602f5b548ccc88a4a8557bb23101095a95ed.gifv)](https://rentry.co/stellezoya)
 
 
+[![](https://64.media.tumblr.com/fbf8b1776bb7812cf2041430cabdabc1/334a52adf4ce2435-fe/s75x75_c1/5f2f6b8780b450981d3818c260cf2dba83750bfb.gifv)](https://rentry.co/Skylarthemage)
+[![](https://64.media.tumblr.com/98c7e11119ae22daa13baf3bb5e915e2/334a52adf4ce2435-16/s75x75_c1/50e71123b82407a43d9e14c3506ac5d63867f8c2.gifv)](https://rentry.co/Ariestheprince)
+
 ![](https://64.media.tumblr.com/9cf948dd0d62415f34ab59f718cf1916/8b5e717c4b380cb5-4a/s250x400/4d2f593dd5fca9b4260e2410ff0b4415f72724f1.pnj)
 
 
