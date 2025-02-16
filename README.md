@@ -1,8 +1,5 @@
 <div align="center">
 
-![](https://64.media.tumblr.com/5c4bd741b972bfde01db68b74d36ba5b/8b5e717c4b380cb5-6d/s400x600/cd228a7e8b4c8d25f0d4de8ad0d0c2e5c1cdaeab.pnj)
-
-
 ᶜˡⁱᶜᵏ ᵗʰᵉ ᵖⁱˣᵉˡˢ ᵗᵒ ˢᵉᵉ ᵗʰᵉ ʳᵉⁿᵗʳʸ⁽ˢ⁾
 
 𝘳𝘦𝘯𝘵𝘳𝘺𝘴 𝘪𝘷𝘦 𝘮𝘢𝘥𝘦:
@@ -26,8 +23,6 @@
 [![](https://64.media.tumblr.com/31638ab32cc7c85ba10d396f94a34dd0/4720c94c0b561795-1d/s75x75_c1/4e3453c7aac02a8f02fdc153a3bc6073d3daf976.gifv)](https://rentry.co/unfinishedshow)
 
 
-![](https://64.media.tumblr.com/9cf948dd0d62415f34ab59f718cf1916/8b5e717c4b380cb5-4a/s250x400/4d2f593dd5fca9b4260e2410ff0b4415f72724f1.pnj)
-
 
 𝘮𝘢𝘵𝘤𝘩𝘪𝘯𝘨 𝘳𝘦𝘯𝘵𝘳𝘺(𝘴):
 
@@ -42,8 +37,6 @@
 
 [![](https://64.media.tumblr.com/fbf8b1776bb7812cf2041430cabdabc1/334a52adf4ce2435-fe/s75x75_c1/5f2f6b8780b450981d3818c260cf2dba83750bfb.gifv)](https://rentry.co/Skylarthemage)
 [![](https://64.media.tumblr.com/98c7e11119ae22daa13baf3bb5e915e2/334a52adf4ce2435-16/s75x75_c1/50e71123b82407a43d9e14c3506ac5d63867f8c2.gifv)](https://rentry.co/Ariestheprince)
-
-![](https://64.media.tumblr.com/9cf948dd0d62415f34ab59f718cf1916/8b5e717c4b380cb5-4a/s250x400/4d2f593dd5fca9b4260e2410ff0b4415f72724f1.pnj)
 
 
 
@@ -79,9 +72,3 @@
 
 ʰᵃᵛᵉ ᶠᵘⁿ ʷⁱᵗʰ ⁱᵗ ʸᵃˡˡ!
 
-![](https://64.media.tumblr.com/9cf948dd0d62415f34ab59f718cf1916/8b5e717c4b380cb5-4a/s250x400/4d2f593dd5fca9b4260e2410ff0b4415f72724f1.pnj)
-
---- 
-ᵍʳᵃᵖʰⁱᶜ [ᶜʳᵉᵈ](https://www.tumblr.com/hrlyqueen)
-
-ᵉᵛᵉʳʸᵗʰⁱⁿᵍ ᵉˡˢᵉ ᵒⁿ [ᵗᵘᵐᵇˡʳ](https://www.tumblr.com)
