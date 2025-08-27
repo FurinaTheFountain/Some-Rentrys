@@ -70,5 +70,5 @@
 [![](https://64.media.tumblr.com/8b49d076724046846414a2b28576abf0/8851735f23cf5f73-c9/s75x75_c1/316ec6ee9e487efe7aca312dd7d8ad747aecd2b1.gifv)](https://rentry.co/Luminescentes)
 [![](https://64.media.tumblr.com/699ec678b08e3f777f6016f1d44f7328/30b158152b64b0f7-8f/s75x75_c1/d76af24204c73c61b3ca637359a18938e120088e.gifv)](https://rentry.co/luminousky)ⁿᵖ ᵏⁱᵃⁿᵃ
 
-ʰᵃᵛᵉ ᶠᵘⁿ ʷⁱᵗʰ ⁱᵗ ʸᵃˡˡ!
+ʰᵃᵛᵉ ᶠᵘⁿ ʷⁱᵗʰ ⁱᵗ ʸᵃˡˡ
 
